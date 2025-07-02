@@ -1,0 +1,1 @@
+# fabricaciondigital-2025-sec1-dioramapaloma
